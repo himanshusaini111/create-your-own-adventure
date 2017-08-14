@@ -11,8 +11,8 @@ I've heard that it tastes like pork...
 OMG WHAT SHOULD I DO??
 I NEED HELP...
 
-I wonder what the cat would do if I gave it a hot dog. I know 
-what I would do. 
+I wonder what the cat would do if I gave it a hot dog. I know
+what I would do.
 
 I'd eat it. Yup, I know it sounds disgusting but a dog is a dog and a cat is a cat.
 You know what I mean?
@@ -39,3 +39,4 @@ My mother was a butterfly. Is that true? No it is not.
 
 I love animals, they are delicious.
 
+I remember that look on the face that cat when i trolled it.
